@@ -1,1 +1,5 @@
-# Activity_11132026_Group3
+GROUP 3
+Hannah A. Padilla
+Gene Adrian Jr Cordero
+Gian Arnel Valencia
+Jay-R Prodigo
